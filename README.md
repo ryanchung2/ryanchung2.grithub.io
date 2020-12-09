@@ -1,1 +1,1 @@
-# ryanchung2.grithub.io
+Map of my Favorite Destinations
